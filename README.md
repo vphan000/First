@@ -12,3 +12,5 @@
 - Hydration: Stay hydrated throughout the festival by drinking plenty of water. Dancing and being outdoors for extended periods can lead to dehydration, so be sure to keep a water bottle with you.
 - Comfortable Clothing and Footwear: Wear comfortable clothing and shoes suitable for dancing and walking long distances. Consider the weather conditions and dress accordingly, whether it's hot and sunny or cooler in the evening.
 - Stay Safe: Look out for your friends and stay together as a group. Establish a meeting point in case you get separated. Familiarize yourself with the festival layout and emergency exits.
+
+  Here's a link to more tips: <tips for edm festivals>(https://www.edmfestivalinsider.com/how-to-prepare-for-an-edm-festival/)
