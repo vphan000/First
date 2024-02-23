@@ -13,4 +13,4 @@
 - Comfortable Clothing and Footwear: Wear comfortable clothing and shoes suitable for dancing and walking long distances. Consider the weather conditions and dress accordingly, whether it's hot and sunny or cooler in the evening.
 - Stay Safe: Look out for your friends and stay together as a group. Establish a meeting point in case you get separated. Familiarize yourself with the festival layout and emergency exits.
 
-  Here's a link to more tips: <tips for edm festivals>(https://www.edmfestivalinsider.com/how-to-prepare-for-an-edm-festival/)
+  Here's a link to more tips: [tips for edm festivals](https://www.edmfestivalinsider.com/how-to-prepare-for-an-edm-festival/)
