@@ -6,4 +6,4 @@ Electronic Dance Music (EDM) is a genre characterized by electronic instruments,
 2. The diverse range of subgenres within EDM allows me to explore different sounds and moods, catering to whatever vibe I'm feeling at the moment.
 3. EDM events and festivals offer an immersive experience where I can connect with others who share my passion for music, creating unforgettable memories and forging lasting friendships on the dance floor.
 
-![edm festival I went to in December 2023](edm.JPG)
+![edm festival I went to in December 2023](edm1.JPG)
